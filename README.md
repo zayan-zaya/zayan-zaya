@@ -1,1 +1,2 @@
-<a href="https://ibb.co/xtVyf4n3"><img src="https://i.ibb.co/nNhTnWXR/IMG-20250202-WA0130-1.jpg" alt="IMG-20250202-WA0130-1" border="0"></a>
+https://github.com/zayan-zaya
+https://files.catbox.moe/ax92lq.jpg
